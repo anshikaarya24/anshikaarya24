@@ -1,0 +1,5 @@
+- 👋 Hi there.I'm Anshika Arya
+- 👀 I love Mathmatics,Programming.
+- 🌱 I'm addicted to learning and growing every day.
+- 💞️ I'm currently sharing a little bit of my knowleadge to the world through my programming.
+- 
